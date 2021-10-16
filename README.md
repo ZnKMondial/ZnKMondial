@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ZnKMondial
+- 🌱 I’m currently learning for my exams 
+- 💞️ I’m Comunitty Manager on Hevo Studio 
+- 👾 I'm interested and I'am trying to learn scripting 
+- 📫 How to reach me Discord: ZnK#6173
